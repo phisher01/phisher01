@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **gsgagan2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Ze66Y1520sqycWnRLS5awiXG0HQjwbT-/view?usp=sharing](https://drive.google.com/file/d/1Ze66Y1520sqycWnRLS5awiXG0HQjwbT-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Ze66Y1520sqycWnRLS5awiXG0HQjwbT-/view?usp=sharing](https://drive.google.com/file/d/1Sd4yj5eGo_VX_8RT_gDGz-XrRzMIM1TX/view?usp=sharing)
 
 - ⚡ Fun fact **Don't learn Technologies, It will get you Mad**
 
