@@ -57,7 +57,7 @@
 - 🌍 &nbsp;**Open Source Contributor** — building impactful tools globally
 - 🧠 &nbsp;**DSA Practitioner** — 350+ problems, 106-day streak on LeetCode
 - 📬 &nbsp;Reach me → **gsgagan2003@gmail.com**
-- 📄 &nbsp;[**View My Resume →**](https://drive.google.com/file/d/1lYwPdWHVn6f9aTwZuUOdKEaAP74hkrLn/view?usp=sharing)
+- 📄 &nbsp;[**View My Resume →**](https://drive.google.com/file/d/1sB94ZV8hjVL_i5876mD5mDi6ySEiBQ7Z/view?usp=sharing)
 
 <br clear="right"/>
 
